@@ -73,7 +73,7 @@ taught me not to brood
 
 but the peace was passing  
 the joy confusing  
-not for lack of effort
+not for lack of effort  
 but for loss of truth
 
 \>\> **Null**  
