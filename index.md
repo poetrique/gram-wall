@@ -28,6 +28,22 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### Loveless
+
+can you miss  
+what it is, you have  
+never had? Can you want  
+to kiss lips, that
+do not want you  
+
+I do not, know  
+why my lot is so  
+I hunger for the moon  
+yet walk upon the sun
+
+\>\> **Null**  
+&copy; 02-2019
+
 ### Prodigal
 
 I have nothing to say  
