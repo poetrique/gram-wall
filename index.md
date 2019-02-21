@@ -28,6 +28,25 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### Story story
+
+I have told a lie  
+never have I known  
+the wonders, of a soul  
+wrapped around my heart  
+at night  
+
+I have told a truth  
+what poet could ever be  
+any sort of virgin  
+I have slept with gods  
+... alright
+
+\>\> **Null**  
+&copy; 02-2019
+
+- - -
+
 ### He is comming soon
 
 she wanted me pure  
@@ -42,6 +61,8 @@ but for loss of truth
 
 \>\> **Null**  
 &copy; 02-2019
+
+- - -
 
 ### Loveless
 
@@ -59,6 +80,8 @@ yet walk upon the sun
 \>\> **Null**  
 &copy; 02-2019
 
+- - -
+
 ### Prodigal
 
 I have nothing to say  
@@ -74,6 +97,8 @@ I am not ashamed
 
 \>\> **Null**  
 &copy; 02-2019
+
+- - -
 
 ### [F*ck It](#) 
 
