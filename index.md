@@ -517,7 +517,7 @@ of tomorrow
 
 - - -
 
-# We Are At 4K Lines
+### We Are At 4K Lines
 
 ![htmlPoems_4K](https://res.cloudinary.com/poetrique/image/upload/v1537597982/htmlpoems/htmlPoems_4K.png)  
 [=POETRIQUE=](http://instagram.com/poetrique)  
@@ -525,7 +525,7 @@ of tomorrow
 
 - - -
 
-## Pretty
+### Pretty
 
 I need me a poet  
 a pretty rose  
@@ -542,7 +542,7 @@ wise enough to love truly
 
 - - -
 
-## Vulnerable
+### Vulnerable
 
 I will open up  
 being successful and alone  
@@ -562,7 +562,7 @@ and comfort
 
 - - -
 
-## I Said
+### I Said
 
 I am not a player  
 I am a lover  
@@ -581,14 +581,14 @@ you said, I said
 
 - - -
 
-## rule your world
+### rule your world
 ![wonexo_3](http://res.cloudinary.com/poetrique/image/upload/v1536065971/htmlpoems/wonexo/wonexo_3.png)  
 [=POETRIQUE=](http://instagram.com/poetrique)  
 [&copy; Wonexo](http://twitter.com/wonexo) ::: SEP-20-018  
 
 - - -
 
-## King Talk
+### King Talk
 
 move like you speak  
 man is a lion  
@@ -606,7 +606,7 @@ in the sky
 
 - - -
 
-## Night
+### Night
 
 to each his own  
 to birds, flight  
@@ -623,13 +623,13 @@ I hustle & break hearts
 
 - - -
 
-## With You
+### With You
 ![pj_2](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1536065173/htmlpoems/paul_joe/pj_2.jpg)  
 [=POETRIQUE=](http://instagram.com/poetrique)  
 [&copy; PeeJay](https://twitter.com/peejay41) ::: SEP-17-018  
 - - -
 
-## Bad guy
+### Bad guy
 
 i have never loved  
 i have been loved  
@@ -647,14 +647,14 @@ i am rare and bold
 
 - - -
 
-## best version
+### best version
 ![wonexo_2](http://res.cloudinary.com/poetrique/image/upload/v1536065958/htmlpoems/wonexo/wonexo_2.png)  
 [=POETRIQUE=](http://instagram.com/poetrique)  
 [&copy; Wonexo](http://twitter.com/wonexo) ::: SEP-14-018  
 
 - - -
 
-## I love JavaScript
+### I love JavaScript
 
 that yellow streak  
 on my G*thub repo  
@@ -669,14 +669,14 @@ before lifting any other
 [=POETRIQUE=](http://instagram.com/poetrique)  
 [&copy; Ninté Null](http://twitter.com/Usheninte) ::: SEP-14-018  
 
-## To My Crush
+### To My Crush
 ![pj_1](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1536065174/htmlpoems/paul_joe/pj_1.jpg)  
 [=POETRIQUE=](http://instagram.com/poetrique)  
 [&copy; PeeJay](https://twitter.com/peejay41) ::: SEP-12-018  
 
 - - -
 
-## offline
+### offline
 
 #### Highways
 
@@ -727,7 +727,7 @@ it could build or kill
 
 - - -
 
-## Hard to stay sane
+### Hard to stay sane
 
 So much in my head  
 it's hard to stay sane...  
@@ -748,7 +748,7 @@ and in everything that makes me Ray…
 
 - - -
 
-## terminal maestro
+### terminal maestro
 
 I am a different kind of person  
 I think in color, and breathe in static  
@@ -770,7 +770,7 @@ CTRL+C : that is all
 
 - - -
 
-## Beauty in  the war
+### Beauty in  the war
 
 I was told not to trust a soul...  
 Made to understand that  
@@ -786,7 +786,7 @@ the only thing that keeps me whole.
 
 - - -
 
-## deviant developer
+### deviant developer
 
 i am a coder, **yes**  
 me no like stress, **yes**  
@@ -809,7 +809,7 @@ while breathing clean air
 
 - - -
 
-## I am YOU with a different name
+### I am YOU with a different name
 
 When I look at a child, my baby I see...  
 
@@ -826,7 +826,7 @@ a boy or girl that could have been me…
 
 - - -
 
-## wine games
+### wine games
 
 ![wonexo_1](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_400/v1533673788/htmlpoems/wonexo/wonexo_1.png)  
 [=POETRIQUE=](http://instagram.com/poetrique)  
@@ -834,7 +834,7 @@ a boy or girl that could have been me…
 
 - - -
 
-## Double You
+### Double You
 
 "We" wouldn't be an item  
 if not for the letter "W"...  
@@ -853,7 +853,7 @@ Double You.
 
 - - -
 
-## patience
+### patience
 
 #### clouds
 
@@ -886,7 +886,7 @@ much more
 
 - - -
 
-## haiku samurai
+### haiku samurai
 
 can i make you wet  
 in two or three words  
@@ -900,7 +900,7 @@ poetry brief, is bold
 
 - - -
 
-## the citadel
+### the citadel
 
 #### premium
 
@@ -936,7 +936,7 @@ sweet, _sublime_
 
 - - -
 
-## confession
+### confession
 
 i cannot promise you joy     
 for i yet still learn it     
@@ -959,7 +959,7 @@ that is all i can offer, in place of love
 
 - - -
 
-## Sacrifices
+### Sacrifices
 
 ![milzapoet_4-sacrifices](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1531406644/htmlpoems/milzapoet/milzapoet_4-sacrifices.png)     
 
@@ -968,7 +968,7 @@ that is all i can offer, in place of love
 
 - - -
 
-## Scaredy-cat
+### Scaredy-cat
 
 Brightness of the day fades away.     
 The rise of a gloomy night.     
@@ -999,7 +999,7 @@ I am a scaredy-cat.
 
 - - -
 
-## vent
+### vent
 
 #### redemption
 
@@ -1039,7 +1039,7 @@ of them, at all, as real
 
 - - -
 
-## first
+### first
 
 ![mambo-1x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-01.jpg)     
 [=POETRIQUE=](http://instagram.com/poetrique)      
@@ -1047,7 +1047,7 @@ of them, at all, as real
 
 - - -
 
-## This is about you lol
+### This is about you lol
 
 As I lay down to sleep     
 I suddenly get a glimpse of you      
@@ -1062,6 +1062,8 @@ Which is good but yet so terrible
 
 - - -
 
+### Nameless
+
 ![mambo-2x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-02.jpg)     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
@@ -1069,7 +1071,7 @@ Which is good but yet so terrible
 
 - - -
 
-## Preacher
+### Preacher
 
 ![milzapoet_3-preacher](http://res.cloudinary.com/poetrique/image/upload/q_auto:best/v1531406642/htmlpoems/milzapoet/milzapoet_3-preacher.png)
 
@@ -1078,7 +1080,7 @@ Which is good but yet so terrible
 
 - - -
 
-## gemini choices
+### gemini choices
 
 #### strong++
 
@@ -1117,7 +1119,7 @@ and force it to look at me
 
 - - -
 
-## treason
+### treason
 
 <blockquote class="instagram-media" data-instgrm-permalink="https://www.instagram.com/p/BlFWCJEn7Jq/" data-instgrm-version="8" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50.0% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAABGdBTUEAALGPC/xhBQAAAAFzUkdCAK7OHOkAAAAMUExURczMzPf399fX1+bm5mzY9AMAAADiSURBVDjLvZXbEsMgCES5/P8/t9FuRVCRmU73JWlzosgSIIZURCjo/ad+EQJJB4Hv8BFt+IDpQoCx1wjOSBFhh2XssxEIYn3ulI/6MNReE07UIWJEv8UEOWDS88LY97kqyTliJKKtuYBbruAyVh5wOHiXmpi5we58Ek028czwyuQdLKPG1Bkb4NnM+VeAnfHqn1k4+GPT6uGQcvu2h2OVuIf/gWUFyy8OWEpdyZSa3aVCqpVoVvzZZ2VTnn2wU8qzVjDDetO90GSy9mVLqtgYSy231MxrY6I2gGqjrTY0L8fxCxfCBbhWrsYYAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div><p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;"><a href="https://www.instagram.com/p/BlFWCJEn7Jq/" style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none;" target="_blank">A post shared by Usheninte (@poetrique)</a> on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2018-07-11T07:46:34+00:00">Jul 11, 2018 at 12:46am PDT</time></p></div></blockquote> <script async defer src="//www.instagram.com/embed.js"></script>
 
@@ -1126,7 +1128,7 @@ and force it to look at me
 
 - - -
 
-## bohemian prophecy
+### bohemian prophecy
 
 #### the African
 
@@ -1184,7 +1186,7 @@ that i am old enough to love her now
 
 - - -
 
-## Ears to the sky
+### Ears to the sky
 
 If you listen to me      
 you'll be able to tell      
@@ -1198,7 +1200,7 @@ there's nothing you can do about it
 
 - - -
 
-## Blackbird
+### Blackbird
 
 ![blackbird ZEE_ZAH19](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1528205453/htmlpoems/zee_zah19/01-blackbird_zee_zah_19.jpg)     
 [=POETRIQUE=](http://instagram.com/poetrique)      
@@ -1206,7 +1208,7 @@ there's nothing you can do about it
 
 - - -
 
-## rhythm
+### rhythm
 
 smile when you see me     
 darling react. Yes, really     
@@ -1217,7 +1219,7 @@ dare to make me feel
 
 - - -
 
-## jungle
+### jungle
 
 ![jungle BY Usheninte](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1531116859/htmlpoems/ninte/jungle.png)
 
@@ -1226,7 +1228,7 @@ dare to make me feel
 
 - - -
 
-## no more white lies
+### no more white lies
 
 #### nymph
 
@@ -1305,7 +1307,7 @@ from clouds on high
 
 - - -
 
-## enter my universe
+### enter my universe
 
 #### venus
 
@@ -1360,7 +1362,7 @@ sound alike to me
 
 - - -
 
-## moist
+### moist
 
 to speak to my readers     
 the _young_ and **bold**     
@@ -1379,7 +1381,7 @@ of our flings, something nice
 
 - - -
 
-## Open places
+### Open places
 
 #### 1. Wasted
 
@@ -1407,7 +1409,7 @@ Gave me something I had forgotten.
 
 - - -
 
-## july 5th 2018
+### july 5th 2018
 
 every time thunder     
 kisses the night sky     
@@ -1424,7 +1426,7 @@ their love, both bold and pure
 
 - - -
 
-## pipe no longer smokes
+### pipe no longer smokes
 
 the moniker holds no meaning     
 games are for the weak     
@@ -1436,7 +1438,7 @@ i bear mine, and lose no sleep
 
 - - -
 
-## Mambo Exclusive
+### Mambo Exclusive
 
 ![mambo-4x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-04.jpg)     
 [=POETRIQUE=](http://instagram.com/poetrique)      
@@ -1452,7 +1454,7 @@ i bear mine, and lose no sleep
 
 - - -
 
-## untitled
+### untitled
 
 I think of ways to  give up for good     
 But remember that my life isn't mine     
@@ -1476,7 +1478,7 @@ I'm so sorry for ranting to you
 
 - - -
 
-## shall i speak of love
+### shall i speak of love
 
 when a boy     
 I wanted a father     
@@ -1494,7 +1496,7 @@ like no other
 
 - - -
 
-## A Single World
+### A Single World
 
 ![a-single-world ZEE_ZAH19](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1528205455/htmlpoems/zee_zah19/02-a-single-world_zee_zah19.jpg)     
 [=POETRIQUE=](http://instagram.com/poetrique)      
@@ -1502,7 +1504,7 @@ like no other
 
 - - -
 
-## Uncertain
+### Uncertain
 
 I fell in love with you to lift my burden      
 Because I couldn't carry it alone      
@@ -1525,7 +1527,7 @@ Uncertain of how to continue...
 
 - - -
 
-## Bravado
+### Bravado
 
 don't need your platform to perform      
 a chance to prove myself      
@@ -1560,7 +1562,7 @@ n wake when everybody think its late
 
 - - -
 
-## Daddy's Little Girl
+### Daddy's Little Girl
 
 ![daddys-little-girl=zee_zah19](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_550/v1528205454/htmlpoems/zee_zah19/03-daddys-little-girl_zee_zah19.jpg)     
 [=POETRIQUE=](http://instagram.com/poetrique)      
@@ -1568,7 +1570,7 @@ n wake when everybody think its late
 
 - - -
 
-## when i was low
+### when i was low
 
 - - -
 
@@ -1666,7 +1668,7 @@ of the true me
 
 - - -
 
-## just zip it
+### just zip it
 
 - - -
 
@@ -1722,7 +1724,7 @@ i slip as i grieve
 
 - - -
 
-## life choices
+### life choices
 
 - - -
 
@@ -1794,7 +1796,7 @@ of love. Here i _sigh_
 
 - - -
 
-## torch
+### torch
 
 i burn away     
 this night, this day     
@@ -1819,7 +1821,7 @@ very cold, tooth
 
 - - -
 
-## Mark My Words
+### Mark My Words
 
 If I ever left a permanent mark on my skin because of you       
 Then know I loved you       
@@ -1832,11 +1834,15 @@ Know that you're killing me without even knowing it
 
 - - -
 
+### Steps
+
 ![mambo-8x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374067/htmlpoems/mambo/mambo-08.jpg)      
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; mambo](http://instagram.com/manlikemambo) <i class="em em-candy"></i> 05-09-018     
 
 - - -
+
+### Milz
 
 ![milzapoet_1](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_400/v1525712962/htmlpoems/milzapoet/milzapoet_1.jpg)      
 [=POETRIQUE=](http://instagram.com/poetrique)      
@@ -1844,7 +1850,7 @@ Know that you're killing me without even knowing it
 
 - - -
 
-## hunger
+### hunger
 
 not for food      
 but for prophecy      
@@ -1860,7 +1866,7 @@ but for blessed glory
 
 - - -
 
-## in the storm
+### in the storm
 
 blazing, truly amazing      
 in the cold, yet still bold     
@@ -1880,7 +1886,7 @@ they will plead, but waste breath
 [&copy; Pipe ](http://instagram.com/poetrique) 05-05-018   
 - - -
 
-## i have lost the cocoon
+##@ i have lost the cocoon
 
 - - -
 
@@ -1959,7 +1965,7 @@ and some still have much fear
 
 - - -
 
-## wait for my hair to grow
+### wait for my hair to grow
 
 then you will know      
 the manner of       
@@ -1976,7 +1982,7 @@ broken, wavy and holy
 
 - - -
 
-## rainy days
+### rainy days
 
 - - -
 
@@ -2034,7 +2040,7 @@ i might pop a mental vein
 
 - - -
 
-## salvation
+### salvation
 
 is for the hopeful        
 i am too inclined to holy folly     
@@ -2049,7 +2055,7 @@ or be repraved
 
 - - -
 
-## nothing
+### nothing
 
 can save me       
 **change** me       
@@ -2067,7 +2073,7 @@ can save me
 
 - - -
 
-## trascend
+### trascend
 
 - - -
 
@@ -2108,7 +2114,7 @@ would you not still be african
 
 - - -
 
-## simple questions
+### simple questions
 
 i love life     
 yet want to die     
@@ -2122,7 +2128,7 @@ to come as death?
 
 - - -
 
-## why i smoke
+### why i smoke
 
 > to choke        
 the pain within me ...        
@@ -2141,7 +2147,7 @@ _puffs_ ... smoke
 
 - - -
 
-## mirrors
+### mirrors
 
 when a soul         
 like mine i saw         
@@ -2158,7 +2164,7 @@ a true human
 
 - - -
 
-## new week
+### new week
 
 - - -
 
@@ -2194,7 +2200,7 @@ by the African sun
 
 - - -
 
-## bread and water
+### bread and water
 
 that feeling of being artistic          
 that borders on madness,            
@@ -2225,7 +2231,7 @@ from the soul of man
 
 - - -
 
-## east to west
+### east to west
 
 - - -
 
@@ -2350,7 +2356,7 @@ For it is its own anthem.
 
 - - -
 
-## lost heroes
+### lost heroes
 
 - - -
 
@@ -2443,7 +2449,7 @@ _
 
 - - -
 
-## peacock soul
+### peacock soul
 
 - - -
 
@@ -2523,7 +2529,7 @@ _
 
 - - -
 
-## song of modern icarus
+### song of modern icarus
 
 i fall then       
 pretend       
@@ -2540,7 +2546,7 @@ _
 
 - - -
 
-## be not deceived
+### be not deceived
 
 i am **far** from common        
 i am **near** genius        
@@ -2577,7 +2583,7 @@ _
 
 - - -
 
-## waterfall
+### waterfall
 
 - - -
 
@@ -2638,7 +2644,7 @@ _
 
 - - -
 
-## achy breaky heart
+### achy breaky heart
 
 i know why girls      
 think i am rare     
@@ -2659,7 +2665,7 @@ _
 
 - - -
 
-## five simple minds
+### five simple minds
 
 - - -
 
@@ -2778,7 +2784,7 @@ _
 
 - - -
 
-## fool no more
+### fool no more
 
 i am a fool no more         
 life is cool no more        
@@ -2812,7 +2818,7 @@ _
 
 - - -
 
-## save me
+### save me
 
 no one at all       
 i desire nothing now      
@@ -2828,7 +2834,7 @@ _
 
 - - -
 
-## grinning sinner
+### grinning sinner
 
 - - -
 
@@ -2919,7 +2925,7 @@ _
 
 - - -
 
-## pointless
+### pointless
 
 do not fight        
 the demons that you see       
@@ -2964,7 +2970,7 @@ _
 
 - - -
 
-## dirty high
+### dirty high
 
 almost fell off     
 the last cloud      
@@ -2985,7 +2991,7 @@ _
 
 - - -
 
-## black panther
+### black panther
 
 man be an urban warrior     
 code on the cloud       
@@ -3010,7 +3016,7 @@ _
 
 - - -
 
-## red
+### red
 
 - - -
 
@@ -3064,7 +3070,7 @@ _
 
 - - -
 
-## moth light
+### moth light
 
 pray tell me **stories**        
 pray tell me **_tales_**        
@@ -3085,7 +3091,7 @@ _
 
 - - -
 
-## SILLY THOUGHTS
+### SILLY THOUGHTS
 
 Sometimes I feel invisible or like      
 I exist only in someone's subconscious.       
@@ -3110,7 +3116,7 @@ _
 
 - - -
 
-## goth king
+### goth king
 
 - - -
 
@@ -3226,7 +3232,7 @@ _
 
 - - -
 
-## nicotine sanity
+### nicotine sanity
 
 a cigarette a     
 day, keeps the doctor away      
@@ -3239,7 +3245,7 @@ _
 
 - - -
 
-## tell them
+### tell them
 
 _words of_ warmth     
 if it will make them      
@@ -3260,7 +3266,7 @@ _
 
 - - -
 
-## choir noir
+### choir noir
 
 - - -
 
@@ -3356,7 +3362,7 @@ _
 
 - - -
 
-## remembering normal
+### remembering normal
 
 the absence of thought      
 is not a thing in itself      
@@ -3373,7 +3379,7 @@ _
 
 - - -
 
-## no sleep
+### no sleep
 
 - - -
 
@@ -3435,7 +3441,7 @@ _
 
 - - -
 
-## a boy named ransom
+### a boy named ransom
 
 - - -
 
@@ -3497,7 +3503,7 @@ ought not to be a reality
 
 - - -
 
-## f*ck it all
+### f*ck it all
 
 let me down     
 let me fall     
@@ -3513,7 +3519,7 @@ at love's door
 
 - - -
 
-## ugly duckling
+### ugly duckling
 
 i am kin to none     
 in truth, in fact     
@@ -3529,7 +3535,7 @@ _just the opposite of white_
 
 - - -
 
-## wolf abuse
+### wolf abuse
 
 puppy dog love     
 turns to wolf abuse     
@@ -3549,7 +3555,7 @@ to shock me
 
 - - -
 
-## nostalgia
+### nostalgia
 
 i miss the former days     
 when life passed in a daze     
@@ -3567,7 +3573,7 @@ from grace
 
 - - -
 
-## expletive
+### expletive
 
 bullsh*t they try     
 to feed me on the steady     
@@ -3582,7 +3588,7 @@ ruddy and cold
 
 - - -
 
-## emotions
+### emotions
 
 - - -
 
@@ -3669,7 +3675,7 @@ my pain must turn to profit
 
 - - -
 
-## premium
+### premium
 
 - - -
 
@@ -3726,7 +3732,7 @@ Noir aNd full of storms
 
 - - -
 
-## spaceman
+### spaceman
 
 i feel nothing   
 i am a star    
@@ -3739,7 +3745,7 @@ truly not even **_pain_**
 
 - - -
 
-## fallen
+### fallen
 
 drops of gold  
 out of my heart   
@@ -3754,7 +3760,7 @@ i can not sleep
 
 - - -
 
-## 2 shots
+### 2 shots
 
 down from on high   
 shot like a fool   
@@ -3776,7 +3782,7 @@ i remain a titan
 
 - - -
 
-## bae book
+### bae book
 
 - - -
 
@@ -3894,7 +3900,7 @@ thus i must fall
 
 - - -
 
-## colosseum
+### colosseum
 
 exposed to the sun   
 naked like a maiden   
@@ -3916,7 +3922,7 @@ to worship, before you fell?
 
 - - -
 
-## the show
+### the show
 
 we are on the waves    
 surfing, but never drowning    
@@ -3965,7 +3971,7 @@ there is nothing holding us back
 
 - - -
 
-## explain
+### explain
 
 why can i never    
 relay as in ink   
@@ -3991,7 +3997,7 @@ are not oft recalled
 
 - - -
 
-## who i need to be
+### who i need to be
 
 - - -
 
@@ -4067,7 +4073,7 @@ cold words
 
 - - -
 
-## last page
+### last page
 
 no more stories       
 to tell     
@@ -4090,7 +4096,7 @@ never lie
 
 - - -
 
-## soul food
+### soul food
 
 age your ideas       
 finer than wine       
@@ -4103,7 +4109,7 @@ you are all you require
 
 - - -
 
-## cobain
+### cobain
 
 when the   
 time comes   
@@ -4124,7 +4130,7 @@ a bullet
 
 - - -
 
-## what i have to say
+### what i have to say
 
 - - -
 
@@ -4175,7 +4181,7 @@ i drown each day
 
 - - -
 
-## make-believe
+### make-believe
 
 thoughts imaginary   
 i pull out   
@@ -4190,7 +4196,7 @@ from make-believe
 
 - - -
 
-## assay
+### assay
 
 often, and with care   
 without reflection   
@@ -4209,7 +4215,7 @@ regardless of where
 
 - - -
 
-## a-levels
+### a-levels
 
 i dropped out to focus   
 and study more   
@@ -4227,7 +4233,7 @@ you cannot snore
 
 - - -
 
-## dar es salaam
+### dar es salaam
 
 raised in the city   
 of peace, and chapati   
@@ -4241,7 +4247,7 @@ white - with graffiti
 
 - - -
 
-## create, debate
+### create, debate
 
 art is argument    
 art is peace   
@@ -4255,7 +4261,7 @@ you last bow
 
 - - -
 
-## in truth
+### in truth
 
 i am nothing    
 just a shell    
@@ -4275,7 +4281,7 @@ mo' monkey biz
 
 - - -
 
-## other poets
+### other poets
 
 are better than me   
 simpler, you see   
@@ -4301,7 +4307,7 @@ my depth is shallow at best
 
 - - -
 
-## to my future love
+### to my future love
 
 - - -
 
@@ -4376,7 +4382,7 @@ full of **melanin**
 
 - - -
 
-## impatient
+### impatient
 
 i tire   
 of waiting   
@@ -4393,7 +4399,7 @@ with pagans
 
 - - -
 
-## bitter blunt
+### bitter blunt
 
 you sting   
 and whisper   
@@ -4411,7 +4417,7 @@ i accept it
 
 - - -
 
-## just because
+### just because
 
 lets do nothing   
 just because   
@@ -4424,7 +4430,7 @@ and toss
 
 - - -
 
-## mean
+### mean
 
 do not like me   
 if you wish   
@@ -4442,7 +4448,7 @@ i am a honeyed black adder
 
 - - -
 
-## darling
+### darling
 
 come to me
 
@@ -4459,7 +4465,7 @@ if you can
 
 - - -
 
-## midnight
+### midnight
 
 god bless   
 my magic yellow pill   
@@ -4478,7 +4484,7 @@ for being real
 
 - - -
 
-## question
+### question
 
 a stranger asked   
 "are you okay?"   
@@ -4493,7 +4499,7 @@ leave me this way
 
 - - -
 
-## antihero
+### antihero
 
 - - -
 
@@ -4566,7 +4572,7 @@ from love
 
 - - -
 
-## bye
+### bye
 
 true poetry   
 they do not  
@@ -4588,7 +4594,7 @@ seek your girth
 
 - - -
 
-## del ray
+### del ray
 
 _lana knows my soul_  
 
@@ -4608,7 +4614,7 @@ _lana knows my soul_
 
 - - -
 
-## simple
+### simple
 
 could love not be  
 direct as smoke  
@@ -4625,7 +4631,7 @@ what we do not
 
 - - -
 
-## guns and roses
+### guns and roses
 
 life    
 _*_     
@@ -4645,7 +4651,7 @@ empathy
 ![b-l-u-e](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1511827495/htmlpoems/02-HP_poetrique.jpg)
 - - -
 
-## lack of
+### lack of
 
 the absence    
 of sleep    
@@ -4665,7 +4671,7 @@ that is nothing
 
 - - -
 
-## cold poetry
+### cold poetry
 
 look not    
 into my eyes    
@@ -4683,7 +4689,7 @@ _now thats a fact_
 
 - - -
 
-## do not
+### do not
 
 - - -
 
@@ -4716,7 +4722,7 @@ do not sigh
 ![i am nue nue](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1511761478/htmlpoems/01-HP_poetrique.jpg)
 - - -
 
-## CONFESSIONS
+### CONFESSIONS
 
 - - -
 
