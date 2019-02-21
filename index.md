@@ -28,6 +28,23 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### Sober, LOL
+
+I do not know  
+I do not care to  
+understand why hearts  
+beat as they do  
+
+fuck who you will  
+love who you shall  
+sobriety kill  
+keep thee far from me  
+
+\>\> **Null**  
+&copy; 02-2019
+
+- - -
+
 ### Story story
 
 I have told a lie  
