@@ -28,6 +28,21 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### He is comming soon
+
+she wanted me pure  
+for my own good  
+fed me soul food  
+taught me not to brood  
+
+but the peace was passing  
+the joy confusing  
+not for lack of effort
+but for loss of truth
+
+\>\> **Null**  
+&copy; 02-2019
+
 ### Loveless
 
 can you miss  
