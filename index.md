@@ -28,6 +28,22 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### [F*ck It](#) 
+
+live for the liquor  
+and bold dreams 
+love, when love will have you
+smoke every other time
+
+my flame is now electric
+my nicotine, I sip
+in liquid form
+youth is young, only ever once
+
+\>\> **Null**
+&copy; 02-2019
+
+- - - 
 
 ### [truth be told](#)
 
@@ -57,7 +73,7 @@ that builds up in my destiny
 my ink is electric  
 my only fear is me  
 
-**\>\> Null**  
+\>\> **Null**  
 &copy; 02-2019
 
 #commentedOut #gitConfessions
