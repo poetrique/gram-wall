@@ -28,7 +28,7 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
-### Sober, LOL
+### [Sober, LOL](#)
 
 I do not know  
 I do not care to  
@@ -45,7 +45,7 @@ keep thee far from me
 
 - - -
 
-### Story story
+### [Story story](#)
 
 I have told a lie  
 never have I known  
@@ -64,7 +64,7 @@ I have slept with gods
 
 - - -
 
-### He is comming soon
+### [He is comming soon](#)
 
 she wanted me pure  
 for my own good  
@@ -81,7 +81,7 @@ but for loss of truth
 
 - - -
 
-### Loveless
+### [Loveless](#)
 
 can you miss  
 what it is, you have  
@@ -99,7 +99,7 @@ yet walk upon the sun
 
 - - -
 
-### Prodigal
+### [Prodigal](#)
 
 I have nothing to say  
 I am not ashamed  
