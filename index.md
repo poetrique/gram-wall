@@ -57,7 +57,7 @@ that builds up in my destiny
 my ink is electric  
 my only fear is me  
 
-**\>_ Null**  
+**\>\> Null**  
 &copy; 02-2019
 
 #commentedOut #gitConfessions
