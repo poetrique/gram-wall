@@ -31,14 +31,14 @@
 ### [F*ck It](#) 
 
 live for the liquor  
-and bold dreams 
-love, when love will have you
-smoke every other time
+and bold dreams  
+love, when love will have you  
+smoke every other time  
 
-my flame is now electric
-my nicotine, I sip
-in liquid form
-youth is young, only ever once
+my flame is now electric  
+my nicotine, I sip  
+in liquid form  
+youth is young, only ever once  
 
 \>\> **Null**
 &copy; 02-2019
