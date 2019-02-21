@@ -28,6 +28,22 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### Prodigal
+
+I have nothing to say  
+I am not ashamed  
+a man, I have become  
+my own way, have I paved  
+
+love should bless  
+whom love deems worthy  
+leave me to my gold and mist  
+leave me to my old smoke's gist  
+I am not ashamed
+
+\>\> **Null**  
+&copy; 02-2019
+
 ### [F*ck It](#) 
 
 live for the liquor  
