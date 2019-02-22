@@ -37,7 +37,7 @@ you can not stop my progeny
 
 I did this for the G\*S\*M  
 Gold, sweat, milk  
-I did just be    
+I did just to be    
 the Am I Am  
 
 look into my keyhole  
