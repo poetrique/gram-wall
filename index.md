@@ -28,6 +28,24 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### Watermelon sins
+
+red is the colour of my ecstasy  
+dotted with a bit of  
+black fantasy  
+
+will you sin with me?
+will you dare to see
+my version of reality
+
+babe, you know you should
+my cup tastes sweet
+
+\>\> **Null**  
+&copy; 02-2019
+
+- - -
+
 ### [Sober, LOL](#)
 
 I do not know  
