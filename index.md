@@ -28,6 +28,13 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+
+
+\>\> **Null**  
+&copy; 02-2019
+
+- - -
+
 ### Watermelon sins
 
 red is the colour of my ecstasy  
