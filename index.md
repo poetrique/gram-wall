@@ -28,7 +28,20 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### Gold, sweat and milk
 
+come at me   
+come at me   
+throw all your stones   
+you can not stop my progeny    
+
+I did this for the G\*S\*M  
+Gold, sweat, milk  
+I did just be    
+the Am I Am  
+
+look into my keyhole  
+tell me, do you smell a soul?  
 
 \>\> **Null**  
 &copy; 02-2019
@@ -37,16 +50,17 @@
 
 ### Watermelon sins
 
-red is the colour of my ecstasy  
+red is the colour  
+of my ecstasy  
 dotted with a bit of  
 black fantasy  
 
-will you sin with me?
-will you dare to see
-my version of reality
+will you sin with me?  
+will you dare to see  
+my version of reality  
 
-babe, you know you should
-my cup tastes sweet
+babe, you know you should  
+my cup tastes sweet  
 
 \>\> **Null**  
 &copy; 02-2019
