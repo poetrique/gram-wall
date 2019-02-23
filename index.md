@@ -28,7 +28,7 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
-### This I know
+### [This I know](#)
 
 I am not desired  
 I am not  
@@ -52,7 +52,7 @@ needs to be one with the sky
 
 - - -
 
-### Moist & cozy
+### [Moist & cozy](#)
 
 what type of energy  
 is created when we  
@@ -71,7 +71,7 @@ this I know for sure
 
 - - -
 
-### Afrofly
+### [Afrofly](#)
 
 how do I pimp my butterfly  
 how do I kill the caterpillar  
@@ -89,7 +89,7 @@ this, my wallet just did teach
 
 - - -
 
-### [Gold, sweat and milk]
+### [Gold, sweat and milk](#)
 
 come at me   
 come at me   
