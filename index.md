@@ -47,7 +47,7 @@ like a flower needs to be kissed
 like a snowy mountain  
 needs to be one with the sky  
 
-\>\> **Null**
+\>\> **Null**  
 &copy; 02-2019
 
 - - -
@@ -66,7 +66,7 @@ a moist and cozy
 celestial locomotion  
 this I know for sure
 
-\>\> **Null**
+\>\> **Null**  
 &copy; 02-2019
 
 - - -
@@ -84,7 +84,7 @@ too high, maybe to reach
 money can not buy love  
 this, my wallet just did teach  
 
-\>\> **Null**
+\>\> **Null**  
 &copy; 02-2019
 
 - - -
