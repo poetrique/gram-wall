@@ -56,7 +56,7 @@ needs to be one with the sky
 
 what type of energy  
 is created when we  
-look our youthful lips  
+lock our youthful lips  
 
 what form of motion  
 is birthed when we  
