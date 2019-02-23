@@ -28,6 +28,24 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### Afrofly
+
+how do I pimp my butterfly  
+how do I kill the caterpillar  
+that is all love does see  
+as though its face, is me  
+
+I guess I am Afrofly  
+beautiful enough to be desired  
+too high, maybe to reach  
+money can not buy love  
+this, my wallet just did teach  
+
+\>\> **Null**
+&copy; 02-2019
+
+- - -
+
 ### Gold, sweat and milk
 
 come at me   
