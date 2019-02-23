@@ -28,6 +28,30 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### This I know
+
+I am not desired  
+I am not  
+sought out, for  
+reasons of love  
+or even of affection  
+
+those who care,  
+hardly stay for long  
+they want to change me  
+but my soul proves too strong  
+
+no one has ever loved me  
+like a poet needs to be loved  
+like a flower needs to be kissed
+like a snowy mountain  
+needs to be one with the sky  
+
+\>\> **Null**
+&copy; 02-2019
+
+- - -
+
 ### Moist & cozy
 
 what type of energy  
