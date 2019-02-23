@@ -28,6 +28,25 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### Moist & cozy
+
+what type of energy  
+is created when we  
+look our youthful lips  
+
+what form of motion  
+is birthed when we  
+twist our hungry hips  
+
+a moist and cozy  
+celestial locomotion  
+this I know for sure
+
+\>\> **Null**
+&copy; 02-2019
+
+- - -
+
 ### Afrofly
 
 how do I pimp my butterfly  
