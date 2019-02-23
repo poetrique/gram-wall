@@ -43,7 +43,7 @@ but my soul proves too strong
 
 no one has ever loved me  
 like a poet needs to be loved  
-like a flower needs to be kissed
+like a flower needs to be kissed  
 like a snowy mountain  
 needs to be one with the sky  
 
@@ -89,7 +89,7 @@ this, my wallet just did teach
 
 - - -
 
-### Gold, sweat and milk
+### [Gold, sweat and milk]
 
 come at me   
 come at me   
@@ -109,7 +109,7 @@ tell me, do you smell a soul?
 
 - - -
 
-### Watermelon sins
+### [Watermelon sins](#)
 
 red is the colour  
 of my ecstasy  
