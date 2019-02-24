@@ -44,7 +44,7 @@ if we are to awaken
 we must rise up  
 and kiss the dust no more  
 
-\>\> **Ninte**  
+\>\> **Null**  
 &copy; 02-2019
 
 - - -
@@ -64,7 +64,7 @@ black blessings, and some mo'
 god must blink today  
 for we shall see our way
 
-\>\> **Ninte**  
+\>\> **Null**  
 &copy; 02-2019
 
 - - -
@@ -85,7 +85,7 @@ a Noble history
 this revolution  
 will not be marginalised
 
-\>\> **Ninte**  
+\>\> **Null**  
 &copy; 02-2019
 
 - - -
