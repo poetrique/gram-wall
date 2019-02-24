@@ -28,6 +28,37 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### [Ghana girl](#)
+
+come over when  
+the sun falls, and  
+makes love with the sky  
+so we can do the same  
+by and by  
+
+we do not have to try  
+love is cliche  
+let us just exchange  
+a bit of body heat  
+for a couple ...
+
+\>\> **Null**  
+&copy; 02-2019
+
+- - -
+
+### [Blacktacus](#)
+
+I am not a player  
+but a pussy slayer  
+I'm a gladiator  
+call me Blacktacus  
+
+\>\> **Null**  
+&copy; 02-2019
+
+- - -
+
 ### [Cold bed](#)
 
 dare to have some  
