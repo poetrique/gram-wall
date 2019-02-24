@@ -28,6 +28,68 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### [Electric Blunt](#)
+
+we can not hurt us  
+I shall not kill me  
+except safe, it will save thee  
+my lost family  
+for blunt stupidity  
+
+you do not need a matyr  
+you need to understand  
+that life, is no satire  
+no comedy of reflections  
+if we are to awaken  
+we must rise up  
+and kiss the dust no more  
+
+\>\> **Ninte**  
+&copy; 02-2019
+
+- - -
+
+### [Oasis](#)
+
+come people  
+listen to the thunder  
+listen to the power  
+the angels scream and cower  
+
+we will hide no longer  
+we knock on heaven's door  
+give us what you owe  
+black blessings, and some mo'
+
+god must blink today  
+for we shall see our way
+
+\>\> **Ninte**  
+&copy; 02-2019
+
+- - -
+
+### [The African](#)
+
+I am first of my name  
+ignorant of shame  
+I do not desire fame  
+so I shall not play the game  
+
+listen, and beware  
+for a lion is born  
+straight from the Nation  
+of Nubian royality and  
+a noble history  
+
+this revolution  
+will not be marginalised
+
+\>\> **Ninte**  
+&copy; 02-2019
+
+- - -
+
 ### [This I know](#)
 
 I am not desired  
