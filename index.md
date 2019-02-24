@@ -34,7 +34,7 @@ we can not hurt us
 I shall not kill me  
 except safe, it will save thee  
 my lost family  
-for blunt stupidity  
+from blunt stupidity  
 
 you do not need a matyr  
 you need to understand  
@@ -80,7 +80,7 @@ listen, and beware
 for a lion is born  
 straight from the Nation  
 of Nubian royality and  
-a noble history  
+a Noble history  
 
 this revolution  
 will not be marginalised
