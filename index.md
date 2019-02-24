@@ -28,6 +28,24 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### [Cold bed](#)
+
+dare to have some  
+fun, foreign lover  
+dare to sin in style  
+and make love  
+everywhere but the bed  
+for a while  
+
+you do not sleep  
+with me, you meet  
+my soul  
+
+\>\> **Null**  
+&copy; 02-2019
+
+- - -
+
 ### [Electric Blunt](#)
 
 we can not hurt us  
