@@ -28,6 +28,25 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### [Mountain](#)
+
+no one knows  
+the mountain of pain  
+I climb each day  
+I smile either way  
+
+so alone  
+an island of stone  
+surrounded by  
+other rocks  
+ships never  
+kissing my docks  
+
+\>\> **Null**
+&copy; 02-2019
+
+- - -
+
 ### [Ghana girl](#)
 
 come over when  
