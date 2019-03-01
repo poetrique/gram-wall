@@ -28,6 +28,60 @@
 
 # <span style="text-decoration: underline">Poetry</span>
 
+### [Silence](#)
+
+i laugh  
+i teach  
+my heart lacks speech  
+
+i move  
+i grow  
+me, pain does reach
+
+you did nothing  
+and that was everything  
+a new sorrow  
+you did teach
+
+\>\> **Null**
+&copy; 02-2019
+
+- - -
+
+### [Sinner boy](#)
+
+you left before you came  
+how funny  
+the pain still tastes the same  
+all I wanted  
+was a soul  
+to soothe the pain  
+
+how childish  
+desire, this ancient game
+
+\>\> **Null**
+&copy; 02-2019
+
+- - -
+
+### [Seen](#)
+
+what is worse  
+than love unreturned  
+what hurts more  
+than sins not forgiven  
+
+a poem unread...  
+a heart simply walking away  
+from you. Without ever  
+caring to say why
+
+\>\> **Null**
+&copy; 03-2019
+
+- - -
+
 ### [Mountain](#)
 
 no one knows  
@@ -35,10 +89,11 @@ the mountain of pain
 I climb each day  
 I smile either way  
 
-so alone  
+so alone 
 an island of stone  
 surrounded by  
 other rocks  
+
 ships never  
 kissing my docks  
 
